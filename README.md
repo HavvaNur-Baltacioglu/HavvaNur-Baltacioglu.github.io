@@ -1,1 +1,0 @@
-# HavvaNur-Baltacioglu.github.io
